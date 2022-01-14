@@ -1,1 +1,1 @@
-# Ozellik-Muhendisligi
+# Ozellik Muhendisligi
